@@ -1,0 +1,1 @@
+Spread mayo, butter or cream cheese all the way to the edges of each slice of bread to create a seal against wet sandwich fillings. Also, try packing high moisture ingredients, like tomatoes, pickles, and cucumbers, separately. Just add them to the sandwich when you're ready to eat.
